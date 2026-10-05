@@ -35,10 +35,15 @@ Keeping up with the latest trends and opportunities is only where this starts.
 To do well, professionalism and reliability have to come first. Casting directors value those things highly, since they say how committed we are to the craft.
 
 **Here are a few essential points to remember:**
+
 **Be Punctual:** Arriving on time shows respect for everyone's schedule and sets a positive tone.
+
 **Stay Prepared:** Always have your essentials ready, including your portfolio and any required materials.
+
 **Communicate Effectively:** Clear communication fosters good relationships and eases collaboration.
+
 **Maintain a Professional Demeanor:** A positive attitude and willingness to adapt can open doors to future opportunities.
+
 Let's take these principles on and do well in Chicago's modeling scene.
 
 **What Our Clients Are Saying About USA Models Photography**
